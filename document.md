@@ -67,4 +67,12 @@ A szobor Budapesten, a Szent Gellért téri metróállomáson található, ahol 
 Yoda alakja nemcsak a filmrajongók számára jelent sokat, hanem általánosabb üzenetet is hordoz. Arra emlékeztet, hogy a bölcsesség és a kitartás fontos szerepet játszik az életben. Kolodko Mihály szobra jól példázza, hogyan lehet a popkultúrát és a köztéri művészetet összekapcsolni. Az alkotás egyszerre humoros, felismerhető és gondolatébresztő, miközben színesebbé teszi Budapest városi környezetét.*
 
 ### Forrásgyűjtemény
-*** sadad
+- https://thumbs.dreamstime.com/z/miniature-bronze-sculpture-dracula-reading-ukrainian-hungarian-sculptor-mihaly-kolodko-city-park-budapest-hungary-361356087.jpg?w=992 
+- https://www.startlap.hu/utazas/uploads/sites/3/2023/06/kolodko-micimacko-2-1536x1150.jpg 
+- https://tse4.mm.bing.net/th/id/OIP.UXni5LYVt1kFXAwoss8UzwHaE8?r=0&rs=1&pid=ImgDetMain&o=7&rm=3 
+- https://static.wixstatic.com/media/1690d0_159e11b6e8d3420ea921b48b25c1af8e~mv2.jpg/v1/fill/w_2500,h_1666,al_c/1690d0_159e11b6e8d3420ea921b48b25c1af8e~mv2.jpg 
+- https://i.szalas.hu/pois/9012/original/37116.jpg
+- https://kep.index.hu/1/0/4264/42648/426481/42648134_bb772fad1ca6fe3e00ff16fec32f19cb_wm.jpg
+- https://videolista.hu/upload/files/cikkek/2025/08/03/budapest-halott-mokus-miniszobor.webp
+- https://kep.cdn.indexvas.hu/1/0/5793/57934/579342/57934225_f8687dc2653b3c41c90c67826d27c5a2_wm.jpg 
+
