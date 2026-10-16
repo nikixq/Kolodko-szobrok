@@ -1,7 +1,7 @@
 # Szobrok
 
 ### Drakula
-![copyImage.webp](images/img_1792095963851_5689737f2b1b.webp)
+![Drakula](img_1792095963851_5689737f2b1b.webp)
 *Kolodko Mihály kárpátaljai származású szobrászművész apró bronzszobrai Budapest különleges látványosságai közé tartoznak. Alkotásai gyakran híres személyeket, mesefigurákat vagy kulturális jelképeket ábrázolnak, és sokszor humoros, elgondolkodtató üzenetet hordoznak. Ezek közé tartozott a Drakula-miniszobor is, amely a Városligetben, a Vajdahunyad vára közelében kapott helyet.*
 
 *A kis szobor egy köpenyes vámpírt ábrázolt, aki nyugodtan olvasott egy könyvet. Az alkotás különlegessége abban rejlett, hogy a félelmetesnek ismert Drakula alakját hétköznapi, szinte kedves helyzetben mutatta be. A figura egyszerre utalt a világhírű vámpírlegendára és Lugosi Bélára, a magyar származású színészre, aki a filmvásznon tette igazán ismertté Drakulát. A karakter történelmi előképe, Vlad Țepeș, szintén kapcsolatot teremtett a mű és a valós történelem között.*
