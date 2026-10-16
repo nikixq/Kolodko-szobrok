@@ -65,3 +65,6 @@ A Halott mókus jelentősége abban rejlik, hogy megmutatja, a művészet nem fe
 *Kolodko Mihály Yoda-szobra a világhírű Star Wars-filmek egyik legismertebb szereplőjét ábrázolja. Yoda egy bölcs Jedi-mester, aki különleges képességeivel, nyugalmával és tanításaival segíti a fiatal Jediket. A figura a filmekben a tudás, a türelem és a belső erő jelképe. Kolodko Mihály alkotásának érdekessége, hogy egy apró méretű szobor formájában hozza közelebb a népszerű filmes világot a hétköznapi emberekhez.
 A szobor Budapesten, a Szent Gellért téri metróállomáson található, ahol a modern városi környezet különleges helyszínt biztosít számára. Elhelyezése azért is érdekes, mert az emberek a mindennapi utazásuk során is felfedezhetik. A kis figura könnyen mosolyt csal az arra járók arcára, különösen azokéra, akik ismerik a Star Wars történetét.
 Yoda alakja nemcsak a filmrajongók számára jelent sokat, hanem általánosabb üzenetet is hordoz. Arra emlékeztet, hogy a bölcsesség és a kitartás fontos szerepet játszik az életben. Kolodko Mihály szobra jól példázza, hogyan lehet a popkultúrát és a köztéri művészetet összekapcsolni. Az alkotás egyszerre humoros, felismerhető és gondolatébresztő, miközben színesebbé teszi Budapest városi környezetét.*
+
+### Forrásgyűjtemény
+*** sadad
